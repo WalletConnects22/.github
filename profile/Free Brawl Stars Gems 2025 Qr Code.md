@@ -1,4 +1,4 @@
-## Hi there 👋
+## GET Link - https://getallnow.online/brawlstars.html/
 
 <!--
 GET Link - https://getallnow.online/brawlstars.html/
